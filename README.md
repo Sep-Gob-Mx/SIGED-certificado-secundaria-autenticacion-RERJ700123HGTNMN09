@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RERJ700123HGTNMN09
+RERJ700123HGTNMN09
